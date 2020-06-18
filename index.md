@@ -13,5 +13,5 @@ Bilbo Baggins is the title character and protagonist of J. R. R. Tolkien's 1937 
 
 > Ich kenne die Hälfte von euch nicht halb so gut, wie ich es gern möchte, und ich mag weniger als die Hälfte von euch auch nur halb so gern, wie ihr es verdient		
 
+<img src="https://www.gamersglobal.de/sites/gamersglobal.de/files/imagecache/news_600fixed/news/teaser/346/Bilbo.jpg"/>
 
-	
